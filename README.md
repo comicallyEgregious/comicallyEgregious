@@ -4,7 +4,7 @@ Hello! I'm Egregious/Evil, but you may know me as Art or Artie.
 <p align="center">
 I'm a They/Them and an Heir of Space!!!
 <p align="center">
-Pathetic Homestuckie and Splatoon fan, but I also enjoy other media such as Ghost Trick, Smiling Friends, Vocaloid/Utauloid, et cetera et cetera, whatever.
+Pathetic Homestuckie and Splatoon fan, but I also enjoy other media such as Smiling Friends, Vocaloid/Utauloid, et cetera et cetera, whatever.
 
 > "毎回繰り返す身勝手
 > 
