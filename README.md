@@ -1,18 +1,20 @@
-## waves and throws a bomb in your direction.
+## hi.
 <p align="center">
-Hello! I'm Egregious/Evil, but you may know me as Art or Artie.
+I'm Egregious/Evil, but you may know me as Art or Artie.
 <p align="center">
-I'm a They/Them and an Heir of Space!!!
-<p align="center">
-Pathetic Homestuckie and Splatoon fan, but I also enjoy other media such as Smiling Friends, Vocaloid/Utauloid, et cetera et cetera, whatever.
+i'm a They/Them, i dont talk much either.
+<p align="center"> 
+  Homestuckie and Splatoon fan, but I also enjoy other media such as Smiling Friends, Vocaloid/Utauloid, et cetera et cetera, whatever.
 
-> "毎回繰り返す身勝手
+> "きみの肩に
 > 
-> 何回も大好きになって
+> 左右 左右 海を作るよ
 > 
-> ごめんね
-> 
-> 『メタモルフォーゼ』!"
+> 寂し 悲し 嬉し きもち
 >
-> -Retry Now - Nakiso
+> 死にそ 生きそ ちかちか光る
+> 
+> 花火 目眩 星の中"
+>
+> -AiAiA - ADO
 
