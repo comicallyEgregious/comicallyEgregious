@@ -1,4 +1,5 @@
-## hi.
+<img width="540" height="294" alt="tumblr_5064e3c1498fb1d42c8104f91ecba1d7_33a5b908_540" src="https://github.com/user-attachments/assets/76b8a44e-e152-46e5-a16f-4d5f42bd714b" />
+## yo.
 <p align="center">
 I'm Egregious/Evil, but you may know me as Art or Artie.
 <p align="center">
