@@ -10,7 +10,8 @@ i'm a They/Them, i dont talk much either.
 <p align="center"> 
   Homestuckie and Splatoon fan, but I also enjoy other media such as Smiling Friends, Vocaloid/Utauloid, et cetera et cetera, whatever.
 
-<img width="540" height="180" alt="tumblr_0cf06103879a8cb0dac1b0096a8dbe2d_188f7420_540" src="https://github.com/user-attachments/assets/273060c2-854b-468b-8dbe-8333f8747116" />
+<p align="center"> 
+  <img width="540" height="180" src="[https://github.com/user-attachments/assets/273060c2-854b-468b-8dbe-8333f8747116](https://64.media.tumblr.com/ee83c8485295f5d69159297e46f7b48e/d16aeebb8dad8ce2-d4/s100x200/3ab3a7d769e83e3c195ee04abb7e2336b6833a03.pnj)" />
 
 > "きみの肩に
 > 
